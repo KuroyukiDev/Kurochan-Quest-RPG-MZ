@@ -1,0 +1,1 @@
+###Kurochan Quest RPG (MZ)###
